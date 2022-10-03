@@ -1,22 +1,3 @@
-Never give up, Never despair.<br/>
-
-When life seems hard,<br/>
-the courageous do not lie down and accept defeat.<br/>
-Intead,they are all the more determined.<br/>
-to struggle for a better future.<br/>
-
-But it is ofter the small steps,<br/>
-not the giant leaps that bring about the most lasting change.<br/>
-While we may have more still to endure,<br/>
-better days will reutrn.<br/>
-
-We will be with our friends again.<br/>
-We will be with our families again.<br/>
-
-We will meet again.<br/>
-BY << Elizabeth II >>
-
-
 ### <h1 align="center">Hi there!👋</h1>
 
 
